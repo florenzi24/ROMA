@@ -8,6 +8,6 @@ you the bestbawochuidaonishenbian
 needyou
 you saw me through
 wogeinisuoyouwogeinisuoyou
-foryoueverydai
+foryoueverydaineedyou
 missyou
 moonlightyouare
